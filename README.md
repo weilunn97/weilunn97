@@ -8,9 +8,9 @@ I'm a **software engineer**. I'm also...
 
 ☑ A **passionate developer** who is constantly obsessed with providing the best possible experience to users, 
 
-☑ A **thinker** who enjoys being challenged at work,
+☑ A **thinker** who enjoys being challenged at work, and finally...
 
-☑ A **person** who seeks meaning in everything I do. 
+☑ A **person** who seeks meaning in everything I do!
 
 I'm Wei Lun, a second-year dual-degree Nanyang Scholar at NTU, majoring in both Computer Science and Business Analytics.
 
