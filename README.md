@@ -13,14 +13,3 @@ I'm a **software engineer**. I'm also...
 ☑ A **person** who seeks meaning in everything I do!
 
 I'm Wei Lun, a second-year dual-degree Nanyang Scholar at NTU, majoring in both Computer Science and Business Analytics.
-
-
-<br>
-
-# What I do
-
-☑ Busy ✍ ✍ ✍ on <a href="https://www.linkedin.com/in/tan-wei-lun/">LinkedIn</a> 
-
-☑ Complaining about 📖📖📖 on my <a href="https://weilunn97.wixsite.com/journeywithjed">website</a>
-
-☑ 👨‍💻👨‍💻👨‍💻, **ALWAYS**
